@@ -12,9 +12,9 @@
 
 💬 Если у вас есть вопросы или предложения по сотрудничеству, не стесняйтесь связаться со мной!
 
-email - kirillgolovanov777@gmail.com
+- email - kirillgolovanov777@gmail.com
 
-tg - https://t.me/Nedsalot
+- tg - https://t.me/Nedsalot
 
-резюме - https://hh.ru/resume/8ee2ad76ff0db9a9100039ed1f6176586e6476
+- резюме - https://hh.ru/resume/8ee2ad76ff0db9a9100039ed1f6176586e6476
 
